@@ -9,13 +9,13 @@ https://www.facebook.com/share/1M1Yk6dKeA/
 **Enamul Haque**
 https://www.facebook.com/share/1PuwRJRMca/
 
+**Rakibul Hassan**
+https://www.facebook.com/groups/682767385562711/user/595343771/
+
 ### Data Science
 
 **Study Mart**
 https://www.facebook.com/groups/627107264761728
-
-**Rakibul Hassan**
-https://www.facebook.com/groups/682767385562711/user/595343771/
 
 ### Software Engineering
 
